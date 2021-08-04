@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Carolzinhah
+- 🇵🇹 I'm Portuguese
+- 🎂 Currently with 16y
+- 📫 Discord: ღCarolღ#6121
